@@ -106,7 +106,10 @@ I’m an IT student who believes in **learning in public**, building real projec
 ## 🔗 Connect With Me
 
 [LinkedIn](https://linkedin.com/in/anaskhan02)  
+
+📧 Email: [Anaskhandev02@gmail.com](mailto:Anaskhandev02@gmail.com)  
 📧 Email: [reyaz7753@gmail.com](mailto:reyaz7753@gmail.com)  
+
 
 ---
 
